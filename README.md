@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I'm Isaac!<br>🎓 Currently pursuing a Diploma in ICT at APU 📚, with a passion for bridging law ⚖️ and technology 💻.<br><br>🌟 What I love:<br><br>🛠️ Solving problems through technology and innovation.<br>🤖 Learning about AI, data processing, and software development.<br>🤝 Sharing knowledge and collaborating on impactful projects.<br>📬 Let’s connect!<br>📧 Email: [isaclim0412@gmail.com]<br>⬇️ Check out my projects below!<br><br>
+👋 Hi, I'm Isac!<br>🎓 Currently pursuing a Diploma in ICT at APU 📚, with a passion for bridging law ⚖️ and technology 💻.<br><br>🌟 What I love:<br><br>🛠️ Solving problems through technology and innovation.<br>🤖 Learning about AI, data processing, and software development.<br>🤝 Sharing knowledge and collaborating on impactful projects.<br>📬 Let’s connect!<br>📧 Email: [isaclim0412@gmail.com]<br>⬇️ Check out my projects below!<br><br>
 
 
 ## 🌐 Socials:
